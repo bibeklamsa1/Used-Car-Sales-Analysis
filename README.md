@@ -43,5 +43,5 @@ The insights help the used car marketplace:
 
 ## 📬 Contact
 
-👤 Vivek Lamsal  
-📧 [Your Email or LinkedIn]  
+👤 Bibek Lamsal  
+📧 [bibeklamsal387@gmail.com]  
